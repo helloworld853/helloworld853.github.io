@@ -1,5 +1,4 @@
-This is my personal website.
-Not yours.
-Leave it alone pls.
-Not looking at anyone in particular.
-Have a nice day.
+This is a website, nothing interesting here.
+I'm not even joking.
+Look.
+Nothing.
